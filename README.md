@@ -1,1 +1,0 @@
-# Glo_Leson10
